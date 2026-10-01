@@ -1,0 +1,2 @@
+# lifemn
+yangi kelgan narxalar
